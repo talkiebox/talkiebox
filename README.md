@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+![](https://count.getloli.com/get/@talkiebox.github.io?theme=rule34)
 <!--
 **talkiebox/talkiebox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
